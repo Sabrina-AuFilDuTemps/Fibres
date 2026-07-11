@@ -1,5 +1,5 @@
 ## Bienvenue 
-Je suis très heureux que tu t'intéresses à mon projet. Je partage ici ma fascination pour l'artisanat ancien, en particulier pour le travail des fibres, l'un des arts artisanaux les plus anciens et les plus importants de l'histoire de l'humanité.
+Je suis très heureuse que tu t'intéresses à mon projet. Je partage ici ma fascination pour l'artisanat ancien, en particulier pour le travail des fibres, l'un des arts artisanaux les plus anciens et les plus importants de l'histoire de l'humanité.
 
 Les fibres servaient non seulement à fabriquer des fils pour les vêtements, mais aussi à confectionner des cordes. Les fils et cordages ont trouvé, et trouvent encore aujourd’hui, de très nombreuses applications dans la fabrication d’objets fondamentaux les plus divers, tels que :
 
